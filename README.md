@@ -1,10 +1,6 @@
 - 👋 Hi, I’m @ValerioVillani
-- 👀 I’m interested in a lot of things
-- 🌱 I’m currently learning Everything
-- 💞️ I’m looking to collaborate on World changing projects
-- 📫 How to reach me U can't, joking (villanivalerio24@gmail.com)
-
-<!---
-ValerioVillani/ValerioVillani is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👀 I’m interested in Innovation and Management
+- 🌱 I’m currently learning How to make profitable my Start-up
+- 💞️ I’m looking to change the World with my projects
+- 📫 How to reach me villanivalerio24@gmail.com
+- Follow my Youtube channel: https://www.youtube.com/channel/UC9MwJ9Mg-4RDPm3l7MWMNXw
