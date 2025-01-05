@@ -2,5 +2,5 @@
 - 👀 I’m interested in Innovation and Management
 - 🌱 I’m currently learning How to make profitable my Start-up
 - 💞️ I’m looking to change the World with my projects
-- 📫 How to reach me villanivalerio24@gmail.com
+- 📫 How to reach me info@valeriovillani.it
 - Follow my Youtube channel: https://www.youtube.com/channel/UC9MwJ9Mg-4RDPm3l7MWMNXw
